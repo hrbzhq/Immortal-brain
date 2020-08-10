@@ -1,2 +1,3 @@
 # Immortal-brain
-Through in-depth learning, a person copies the same thinking as this person, so as to achieve the eternal life of thought.
+
+Through the deep study of a person, copy the same thinking with this person, to achieve the eternal life of thought.
