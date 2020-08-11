@@ -4,5 +4,5 @@ Through the deep study of a person, copy the same thinking with this person, to 
 Innovative managers
 English gentlemen
 Engineers in Germany
-日本的工匠
+Japanese craftsmen
 Omnipotent boss
